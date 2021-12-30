@@ -7,5 +7,5 @@
 - :wave: How to reach me : pancaranratnam@gmail.com 
 - :art: https://www.instagram.com/infinitespace___/
 - :globe_with_meridians: Indonesia | English
-- ⚡ Passionate for team work
+- ⚡ enthusiastic for teamwork
 
