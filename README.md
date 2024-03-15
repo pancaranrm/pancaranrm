@@ -1,4 +1,4 @@
-### Hi Folks! My name is Anca :smile_cat:
+### Hi Coders! My name is Panca :smile_cat:
 
 :sparkles: I'am a senior high school student who love to design and lil code :sparkles:
 
